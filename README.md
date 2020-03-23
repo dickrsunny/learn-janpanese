@@ -1,1 +1,1 @@
-knowledge about janpanese
+way to janpanese
