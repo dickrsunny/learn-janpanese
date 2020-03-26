@@ -1,1 +1,1 @@
-way to janpanese
+way to japanese
